@@ -1,1 +1,0 @@
-# receita-previs-vel-para-vendas-individuais
